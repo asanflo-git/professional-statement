@@ -10,7 +10,7 @@ I am a very upfront and honest person.
 I am also highly responsible in every aspect of my life.  
 I enjoy helping others and I like to contribute positively to this world.
 
-## 🔐 Why is Cybersecurity Interesting to me?
+## 🔐 Why is Cybersecurity Interesting to Me?
 I am interested in cybersecurity because I like challenges and enjoy roles where I have to “figure it out.”  
 I like to investigate, I enjoy learning new things, and educating myself constantly.  
 I like that it is a career where I can grow, and since the tech space is constantly changing, I want to be a part of that and make it a better place for everyone.
